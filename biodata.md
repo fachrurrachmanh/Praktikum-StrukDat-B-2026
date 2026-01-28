@@ -1,0 +1,5 @@
+Nama: FACHRURRACHMAN HAKEEM
+
+NIM: 25071103911
+
+Prodi: S1 Teknik Informatika
